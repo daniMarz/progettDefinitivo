@@ -1,1 +1,0 @@
-# progettoQuote1
